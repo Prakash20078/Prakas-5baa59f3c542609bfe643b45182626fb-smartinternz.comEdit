@@ -1,1 +1,1 @@
-# Prakas-5baa59f3c542609bfe643b45182626fb-smartinternz.comEdit
+STUDENT MANAGEMENT SYSTEM 
